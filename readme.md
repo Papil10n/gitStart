@@ -1,3 +1,3 @@
-# Git and Github Course 
+# Git and Github
 
-Crash couse for Git
+s a g e w q y t e p h g
